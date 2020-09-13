@@ -1,5 +1,3 @@
 # NewRepository
 
-jhkjhf
-pkefnkejhfewkj
-kjfhwkdjhfdks
+hello my name is christopher lee
